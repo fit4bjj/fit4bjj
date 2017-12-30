@@ -3,4 +3,4 @@ layout: post
 title: Hello world
 ---
 
-Hi there
+Hi there.
