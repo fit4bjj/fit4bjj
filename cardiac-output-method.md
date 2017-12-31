@@ -15,7 +15,7 @@ Increase the weekly volume over time. Two sessions of 30 minutes each will have 
 
 The cardiac output method works by increasing the size of the left ventricle of the heart, which in turn increases the amount of blood that gets pumped with each stroke. That’s where the method gets its name from. 
 
-When your heart can pump more blood with each stroke, it lowers your resting heart rate. It was shown that faster endurance athletes had a larger heart (Neumann et al. 2000, pp. 52-54).
+When your heart can pump more blood with each stroke, it lowers your resting heart rate. There is a correlation between faster endurance athletes and their heart size (Neumann et al. 2000, pp. 52-54).
 
 You can use this method during your regular BJJ training. During sparring, use an easy flow rolling pace and don't take any breaks. You have to keep your ego in check and stick to a slow and steady pace. That might mean that you will get submitted by people who would not catch you otherwise.
 
