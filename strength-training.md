@@ -13,7 +13,7 @@ Stronger muscles, ligaments and tendons are less likely to get injured. Fewer in
 
 You have to be efficient with your strength training when getting better at BJJ is your main goal. Keep the sessions short and focus on basic compound lifts like squats, deadlifts and bench presses. Those full-body exercises give you most bang for your buck. Don't train every muscle separately like a bodybuilder.
 
-A full body program with 2-3 workouts per week or a 4-6 day split work well. Pick one that fits into your schedule. A split will have shorter workouts, but you will have to go to the gym more often.
+A full body program with 2-3 workouts per week or a 4-6 day split works well. Pick one that fits into your schedule. A split will have shorter workouts, but you will have to go to the gym more often.
 
 You can use any strength program that you like, there are lots of good ones out there. But most of them are written for people who only go to the gym. You will most likely have to reduce the weekly volume to make sure that you can still recover from all your other training.
 

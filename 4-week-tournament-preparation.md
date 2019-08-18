@@ -55,7 +55,7 @@ The training intensity will be much higher than normally, so make sure that you 
 
 Do your technical work like light drilling and troubleshooting before you do the conditioning part of the training. Focus on your A-game and problems that you identified during past tournaments and sparring. The cardiac output method days are great to work on those areas. Positional sparring and just drilling works well for that.
 
-Start cutting down on your training volume 8-10 days before the tournament. This is the tapering period. In that time, stick to the cardiac output method and don't do any training at all during the last 2-3 days before the tournament. Make sure you stay injury free during that time and let your body heal and recover from the hard sessions.
+Start cutting down on your training volume 8-10 days before the tournament. This is the tapering period. In that time, stick to the cardiac output method and focus on light technical work in your other training sessions. Make sure you stay injury free during that time and let your body heal and recover from the hard sessions.
 
 I made a PDF with all the information summarized that you can print out and put in your bag or hang up in your academy.
 
